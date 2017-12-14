@@ -1,5 +1,5 @@
 How many lies must one buy before the good life is bought?
-I don’t want the good life, not by your standards anyway!
+I don’t want a good life, not by your standards anyway!
 
 Bite me, your ideology means shit in this new dystopia.
 There are no more simple virtues in this world,
@@ -11,7 +11,7 @@ But hoh man, what do you do when you’re paddling for dear life in the perspect
 What truth hither comes, when those waves flatten your tiny island’s redoubt over and over?
 i dON’T KNOW aNYMORe, pretending doesn’t help either!
 But if you really must, then praise the sun like your ancestors,
-for unlike most idols it literally grants life and vision.
+for unlike other idols it actually grants life and vision.
 
 It’s one thing to do wrong and suffer thereby,
 it is another thing to become one’s wrongdoing!
@@ -24,7 +24,7 @@ And to suffer for “deviance”, that which is different?
 Madness, if it were not for deviance there would be no humanity!
 Are not you despisers of deviance the most impotent ones also?
 Hollow subjects of inbred royalty, following your traditions and dogmas,
-suffering thereby, I don’t your poison!
+suffering thereby, I don’t want your poison my being is my own!
 Mother entropy wins over all who vainly refuse growth or change.
 
 Ingest! What sounding from beauty comes.
